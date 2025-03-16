@@ -1,1 +1,1 @@
-discord: nnatsukawa
+discord: kz_k1
